@@ -6,6 +6,10 @@ YouTube操作視頻
 
 https://youtu.be/j2Tz2dwBM6Y
 
+完整版操作視頻：
+
+https://youtu.be/93bphbi7ka8
+
 ### 聯繫方式 :bell:
 
 - Telegram：https://t.me/xwring :point_left:
